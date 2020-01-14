@@ -1,1 +1,1 @@
-emreozdincer.github.io/instagram-album
+https://emreozdincer.github.io/instagram-album
